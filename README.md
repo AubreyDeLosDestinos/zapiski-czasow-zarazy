@@ -1,6 +1,6 @@
 # Zapiski z czasów zarazy
 
-## Wstęp: dd 14. marca do 1. maja 2020
+## Wstęp: od 14. marca do 1. maja 2020
 
 _Potem._
 
