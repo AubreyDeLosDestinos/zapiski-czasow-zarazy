@@ -11,3 +11,5 @@ _Potem._
 Od dzisiaj można wychodzić na spacery z osobami, z którymi się mieszka. Zasady: 1 godzina dziennie, w promieniu 1 km od domu. Jeżeli uprawia się sport dla jednej osoby (bieganie, jazda na rowerze), to nie ma chyba ograniczenia czasowego oraz większy obszar jest możliwy, bowiem do do granic miejskich.
 
 Od wczoraj jest ładna pogoda. Wcześniej dużo padało.
+
+Widziałem zdjęcie promenady w Barcelonie. Była pełna ludzi, którzy masowo wylegli na ulice, ignorując bezpieczną odległość.
