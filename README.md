@@ -22,7 +22,7 @@ Przyszła fala upałów. Z dnia na dzień -cyk- i jest gorąco.
 
 ### 2 maja 2020
 
-Od dzisiaj można wychodzić na spacery z osobami, z którymi się mieszka. Zasady: ~~~1 godzina dziennie,~~ w promieniu 1 km od domu. Jeżeli uprawia się sport dla jednej osoby (bieganie, jazda na rowerze), to ~~nie ma chyba ograniczenia czasowego oraz~~ większy obszar jest możliwy, bowiem do do granic miejskich.
+Od dzisiaj można wychodzić na spacery z osobami, z którymi się mieszka. Zasady: ~~1 godzina dziennie,~~ w promieniu 1 km od domu. Jeżeli uprawia się sport dla jednej osoby (bieganie, jazda na rowerze), to ~~nie ma chyba ograniczenia czasowego oraz~~ większy obszar jest możliwy, bowiem do do granic miejskich.
 
 Od wczoraj jest ładna pogoda. Wcześniej dużo padało.
 
